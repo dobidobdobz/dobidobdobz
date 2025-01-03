@@ -6,5 +6,5 @@
 - at my website, https://dobripopov.online/,
 - Linkedin, https://www.linkedin.com/in/dobri-popov-615514213/
 - instagram, https://www.instagram.com/dobri_todorov_popov/
-- ⚡ Fun fact: I am from Bulgaria but grew up in South Africa, 
+-⚡ Fun fact: I am from Bulgaria but grew up in South Africa, 
 
